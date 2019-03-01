@@ -1,8 +1,18 @@
 UF101
 =====
 
-佛罗里达大学新生指南
+CSA编写了2018年的新生指南，帮助华人国际学生抵达、融入校园。
 
-本文档由佛大论坛（toufl.com）发起，由志愿作者们合作撰写、更新和维护。是一份旨在为来佛罗里达大学求学的中国留学生提供参考和指导的文档。
-感谢所有志愿者的奉献。希望新生使用文档以后，亦能回馈社区，为维护、更新文档尽一份力。
-有疑问请联系scout@toufl.com
+指南信息请参考CSA网站：https://www.ufcsa.org/guide
+
+
+
+TOUFL也提供了PDF版的下载链接
+
+起飞篇 https://www.toufl.com/uploads/new_to_ufl/2018/new_to_ufl_1.pdf
+
+落地篇 https://www.toufl.com/uploads/new_to_ufl/2018/new_to_ufl_2.pdf
+
+住房详解篇 https://www.toufl.com/uploads/new_to_ufl/2018/new_to_ufl_3.pdf
+
+入学篇 https://www.toufl.com/uploads/new_to_ufl/2018/new_to_ufl_4.pdf
